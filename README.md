@@ -1,2 +1,2 @@
-# Systemofadownglazer-github.io
+# systemofadownglazer.github.io
 Portfolio 2026
